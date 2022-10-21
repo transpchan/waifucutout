@@ -4,7 +4,7 @@
 
 Waifucutout will not accept new uploads starting from 21/10/2022. 
 
-The site will be shut down at the end of this month due to lack of users and funding. All data will be deleted. Please find alternatives. Sorry.
+The site will be shut down at the end of this month due to lack of users and funding. Please find alternatives. Sorry.
 
 The model will be provided upon request for research purposes. transpchan@gmail.com
 
